@@ -1,0 +1,2 @@
+# tugas_ASD_singular_Rekaliana_G1F021006
+G1F021006_Rekaliana
